@@ -15,4 +15,13 @@ corpse around?*>> Perhaps someone else can pin point where exactly
 within the book this is mentioned.
 
 This resembles to me to the stoicisim's thought of *memento mori*,
-which I also find pretty interesting.
+which I also find pretty interesting. Because I, like all living
+things, will die eventually.
+
+Supposing a Healthy Life Expectancy of around 75 years. I've still
+got around 60% left, so let's try start living it properly. Which
+brings me to the two purposes of this blog. First and foremost,
+would be to write down my understanding of different subjects that
+I learn about in order to help my future self and, hopefully, one
+or two more people along the way. And secondly, would be to attempt
+to narrow my focus, that is of subjects and projects. 
